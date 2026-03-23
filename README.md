@@ -1,6 +1,6 @@
 # 💫"Isn't it totes adorbs?"
 
--- Irl brighteyes & blue, feel free to use nicknames and any pronouns idm!||💗Taken, I love my bf!!( https://github.com/0fficer-sanchez )||🫂 Friendlover, I love all my friends sm--
+-- Irl Brighteyes, Blue, and Azure. Feel free to use nicknames and any pronouns idm!||💗Taken, I love my bf!!( https://github.com/0fficer-sanchez )||🫂 Friendlover, I love all my friends sm--
 
 --🟢 online, feel free to chat, I am a bit shy tho ^_^
 
