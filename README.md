@@ -4,9 +4,9 @@
 
 --🟢 online, feel free to chat, I am a bit shy tho ^_^
 
---🌙 afk or just chilling
+--🌙 afk or studying/playing roblox
 
---⛔ Need some space
+--⛔ Don't feel like talking, but u can sit with me
 
 ![Screenshot_20260121_144217](https://github.com/user-attachments/assets/67c33053-8d9a-4338-a632-d8fc38dd7bab)
 
